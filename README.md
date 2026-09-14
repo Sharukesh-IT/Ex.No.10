@@ -1,6 +1,6 @@
 # **Ex.No.10 : Content Creation (Reports, Articles, Case Studies, etc.) Using Prompt Patterns**
 
-## **Reg. No.: 21224220095**
+## **Reg. No.: 212224220095**
 
 ## **Name: SHARUKESH S**
 
